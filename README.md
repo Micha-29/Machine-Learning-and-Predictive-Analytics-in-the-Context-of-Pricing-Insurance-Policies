@@ -5,6 +5,7 @@
 **Institution:** National University of Singapore (Exchange Semester)  
 **Authors:** Group 19 (incl. Michaïl Maréchal)  
 **Date:** November 2023
+
 **Achievement:** Awarded *Highest Mark in Class*  
 
 ---
